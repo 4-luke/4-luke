@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @4-luke
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning multiple languages and new approaches to complex problem solving skills
+- 💞️ I’m looking to collaborate on NOT currently looking to collaborate
+- 📫 How to reach me N/A
+- ⚡ Fun fact: Im willing to work harder than any of you
